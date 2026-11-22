@@ -1,1 +1,0 @@
-# Jaryq-lastanu
